@@ -1,7 +1,7 @@
 ### Hi there! my name is Sahrul Gunawan 👋
 
 #### My discord
-![Discord](https://discord.c99.nl/widget/theme-3/321665808830955521.png)
+![Discord](https://discord.c99.nl/widget/theme-2/321665808830955521.png)
 
 #### My stats
 
